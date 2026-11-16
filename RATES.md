@@ -11,7 +11,7 @@ Packages
 
 How to order
 1. Send the beat and up to 3 references
-2. Interac e-Transfer to justinchurchill780@gmail.com
+2. Interac e-Transfer to dj.j2dawgs@gmail.com
 3. Message: FEATURE-[your name]
 4. Work starts when the money lands
 
